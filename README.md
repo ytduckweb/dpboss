@@ -1,6 +1,6 @@
 # Satta Matka DpBoss Kalyan Result Live 2025      
 
-**Kalyan Chart 29/1/2025 कल्याण चार्ट, कल्याण रिजल्ट, कल्याण बाजार, कल्याण ओपन, कल्याण [मटका](https://github.com/milan-day-milan-chart-milan-result), सटका मटका कल्याण, सट्टा मटका कल्याण, कल्याण सट्टा मटका, कल्याण पैनल चार्ट, कल्याण सटका मटका** 
+**Kalyan Chart 29/1/2025 कल्याण चार्ट, कल्याण रिजल्ट, कल्याण बाजार, कल्याण ओपन, कल्याण [मटका](https://ytduckweb.github.io/dpboss/), सटका मटका कल्याण, सट्टा मटका कल्याण, कल्याण सट्टा मटका, कल्याण पैनल चार्ट, कल्याण सटका मटका** 
 
 
 ![Click Here GIF](https://media.tenor.com/qWWK-O83J5YAAAAi/click-here.gif)
