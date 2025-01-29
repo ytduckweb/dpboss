@@ -5,6 +5,8 @@
 
 ![Click Here GIF](https://media.tenor.com/qWWK-O83J5YAAAAi/click-here.gif)
 
+ISMART GUESSING FORM check karoo 
+[smart guessing](https://dpbossking.in/ismart-guessing)
 **इसके साथ ही आपके साथ फिक्स अंक शेयर किए है जिसे आप हमारे ग्रुप देख सकते है जिसके लिए आप टेलीग्राम और व्हाट्सप्प ग्रुप को ज्वाइन करले**
 ###  - Telegram  Group 👉👉 [Join Now](https://t.me/ismartdpbossking) 👈
 
@@ -30,39 +32,57 @@
 ---  
 
  ## Table of Contents
-1. [MILAN MORNING](#milan-morning)
-2. [SRIDEVI](#sridevi)
-3. [KALYAN MORNING](#kalyan-morning)
-4. [PADMAVATHI](#padmavathi)
-5. [MADHURI](#madhuri)
-6. [RAJDHANI MORNING [main]](#rajdhani-morning-main)
-7. [SRIDEVI MORNING](#sridevi-morning)
-8. [MAHARANI](#maharani)
-9. [KARNATAKA DAY](#karnataka-day)
-10. [TIME BAZAR MORNING](#time-bazar-morning)
-11. [TIME BAZAR](#time-bazar)
-12. [TARA MUMBAI DAY](#tara-mumbai-day)
-13. [PRABHAT](#prabhat)
-14. [DIAMOND](#diamond)
-15. [TIME BAZAR DAY](#time-bazar-day)
-16. [BK BAZAR](#bk-bazar)
-17. [MILAN DAY](#milan-day)
-18. [MAIN BAZAR DAY](#main-bazar-day)
-19. [PUNA BAZAR](#puna-bazar)
-20. [KALYAN](#kalyan)
-21. [MILAN DAY (Additional)](#milan-day-additional)
-22. [SUPREME DAY](#supreme-day)
-23. [PUNA BAZAR (Additional)](#puna-bazar-additional)
-24. [SUPER GOA DAY](#super-goa-day)
-25. [RAJDHANI DAY](#rajdhani-day)
-26. [ANDHRA DAY](#andhra-day)
-27. [CHENNAI BAZAR](#chennai-bazar)
-28. [KAMAL DAY](#kamal-day)
-29. [KOLHAPUR DAY](#kolhapur-day)
-30. [MILAN BAZAR DAY](#milan-bazar-day)
-31. [PAISA BAZAR DAY](#paisa-bazar-day)
-32. [RAJYOG DAY](#rajyog-day)
-33. [SUPER KING](#super-king)
+1. [GUESSING FORUM](https://dpbossking.in/guessing)
+2. [I-SMART GUESSING FORUM](https://dpbossking.in/ismart-guessing)
+
+## Panel Charts
+
+3. [DISAWAR RECORDS](https://dpbossking.in/delhi-chart/disawar-satta-king-black-record-chart-2024)
+4. [GALI RECORDS](https://dpbossking.in/delhi-chart/gali-satta-king-black-record-chart-2024)
+5. [GAZIABAD RECORDS](https://dpbossking.in/delhi-chart/ghaziabad-satta-king-black-record-chart-2024)
+6. [FARIDABAD RECORDS](https://dpbossking.in/delhi-chart/faridabad-satta-king-black-record-chart-2024)
+7. [DELHI MARKET (2013-2024) RECORDS](https://dpbossking.in/delhi-chart/disawar-satta-king-black-record-chart-2024)
+
+## Jodi Charts
+
+8. [SRIDEVI JODI CHART](https://dpbossking.in/chart/sridevi-jodi-chart)
+9. [TIME BAZAR JODI CHART](https://dpbossking.in/chart/time-bazar-jodi-chart)
+10. [MADHUR DAY JODI CHART](https://dpbossking.in/chart/madhur-day-jodi-chart)
+11. [RAJDHANI DAY JODI CHART](https://dpbossking.in/chart/rajdhani-day-jodi-chart)
+12. [MILAN DAY JODI CHART](https://dpbossking.in/chart/milan-day-jodi-chart)
+13. [SUPREME DAY JODI CHART](https://dpbossking.in/chart/supreme-day-jodi-chart)
+14. [KALYAN JODI CHART](https://dpbossking.in/chart/kalyan-jodi-chart)
+15. [FARIDABAD JODI CHART](https://dpbossking.in/chart/faridabad-jodi-chart)
+16. [DISAWAR JODI CHART](https://dpbossking.in/chart/disawar-jodi-chart)
+17. [GALI JODI CHART](https://dpbossking.in/chart/gali-jodi-chart)
+18. [GAZIABAD JODI CHART](https://dpbossking.in/chart/ghaziabad-jodi-chart)
+19. [MILAN NIGHT JODI CHART](https://dpbossking.in/chart/milan-night-jodi-chart)
+20. [RAJDHANI NIGHT JODI CHART](https://dpbossking.in/chart/rajdhani-night-jodi-chart)
+21. [SUPREME NIGHT JODI CHART](https://dpbossking.in/chart/supreme-night-jodi-chart)
+22. [KALYAN NIGHT JODI CHART](https://dpbossking.in/chart/kalyan-night-jodi-chart)
+23. [TIME BAZAR NIGHT JODI CHART](https://dpbossking.in/chart/time-bazar-night-jodi-chart)
+24. [MADHUR NIGHT JODI CHART](https://dpbossking.in/chart/madhur-night-jodi-chart)
+
+## Panel Charts
+
+ [SRIDEVI PANEL CHART](https://dpbossking.in/chart/sridevi-panel-chart)
+ [TIME BAZAR PANEL CHART](https://dpbossking.in/chart/time-bazar-panel-chart)
+ [MADHUR DAY PANEL CHART](https://dpbossking.in/chart/madhur-day-panel-chart)
+ [RAJDHANI DAY PANEL CHART](https://dpbossking.in/chart/rajdhani-day-panel-chart)
+ [MILAN DAY PANEL CHART](https://dpbossking.in/chart/milan-day-panel-chart)
+ [SUPREME DAY PANEL CHART](https://dpbossking.in/chart/supreme-day-panel-chart)
+ [KALYAN PANEL CHART](https://dpbossking.in/chart/kalyan-panel-chart)
+ [FARIDABAD PANEL CHART](https://dpbossking.in/chart/faridabad-panel-chart)
+ [DISAWAR PANEL CHART](https://dpbossking.in/chart/disawar-panel-chart)
+ [GALI PANEL CHART](https://dpbossking.in/chart/gali-panel-chart)
+ [GAZIABAD PANEL CHART](https://dpbossking.in/chart/ghaziabad-panel-chart)
+ [MILAN NIGHT PANEL CHART](https://dpbossking.in/chart/milan-night-panel-chart)
+ [RAJDHANI NIGHT PANEL CHART](https://dpbossking.in/chart/rajdhani-night-panel-chart)
+ [SUPREME NIGHT PANEL CHART](https://dpbossking.in/chart/supreme-night-panel-chart)
+ [KALYAN NIGHT PANEL CHART](https://dpbossking.in/chart/kalyan-night-panel-chart)
+ [TIME BAZAR NIGHT PANEL CHART](https://dpbossking.in/chart/time-bazar-night-panel-chart)
+ [MADHUR NIGHT PANEL CHART](https://dpbossking.in/chart/madhur-night-panel-chart)
+
 
 ---
 
